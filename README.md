@@ -2,7 +2,7 @@
 
    sooo...
    nu sieht dat hier so aus;
-  form no longer follows function
+  form no longer follows function - 
   it's "everything's allowed" now
 ################################
 ##      Baby, I love you      ## 
