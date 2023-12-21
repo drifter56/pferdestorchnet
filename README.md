@@ -1,5 +1,9 @@
 # pferdestorchnet
 
+   sooo...
+   nu sieht dag jier so aus;
+  form no longer follows function
+  it's "everything's allowed" now
 ################################
 ##      Baby, I love you      ## 
 ################################
