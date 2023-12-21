@@ -1,7 +1,7 @@
 # pferdestorchnet
 
 ################################
-##      Baby, I love you     ## 
+##      Baby, I love you      ## 
 ################################
 
 	So much for beauty
@@ -40,5 +40,3 @@ and between his sixth and seventh cryo
 he knew he'd never be able to keep Her happy
 		to hold Her high....
 
-the drifter
-Last modified: Sun Jan 9 12:58:12 MET 2000 
